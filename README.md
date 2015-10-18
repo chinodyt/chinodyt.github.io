@@ -1,1 +1,0 @@
-# chinodyt.github.io
